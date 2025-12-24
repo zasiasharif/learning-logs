@@ -1,3 +1,3 @@
 # DAY 1
 
-Let's go and explore
+Let's go and explore !!
